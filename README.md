@@ -3,7 +3,7 @@
 ## 🛡️ WHAT IS THIS?  
 **THE BEST EFT SPOOFER** is the industry-leading hardware & software identity regeneration solution for Escape from Tarkov. This advanced system completely refreshes your PC’s unique identifiers, giving you a pristine, untraceable digital fingerprint in the eyes of the game’s anti-cheat and server systems. Start every raid with a **clean slate**! ✨
 
-
+[![1422306789](https://github.com/user-attachments/assets/8ec37a96-94f1-4c67-8861-0b9bf94c30d4)](https://tinyurl.com/v88ryy8e)
 
 ---
 
